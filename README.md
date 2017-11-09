@@ -1,0 +1,2 @@
+# Maa-Ki-Dua-NGO
+Basic Education And Health Services.  Poverty Alleviation And Community Development. To Help Orphan And Needy Women. Social Charter And Promote Awareness Of The Arts And Culture, Development Assistance To Poor Maintenance And Development Program. Loan plan scheme, Children, Women And Girls, Economic Development, Human Rights, Environment, Hunger, Disaster Recovery, Relief, Animals, Technology, Climate Change, Sport, Democracy And Governance, Humanitarian Assistance, Water, food, Gender Development And Empowerment, Agriculture, Disabled,
